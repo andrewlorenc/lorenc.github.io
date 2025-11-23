@@ -1,1 +1,1 @@
-# [Françoise’s Travel Books](lorenc.html)[^.^](family.htm)
+# [Françoise’s Travel Books](lorenc.html) [.](family.htm)
